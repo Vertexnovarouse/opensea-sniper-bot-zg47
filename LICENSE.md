@@ -1,4 +1,4 @@
-# 
+# advanced opensea sniper bot | royalty-calculator + profit-calculator is the best opensea sniper bot, featuring royalty-calculator and profit-calculator. Fast, smart, and optimized
 
 
 
